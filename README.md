@@ -11,4 +11,5 @@ novità caratteristiche:
 • scherzavo
 • 666 gb RAM,128 gb,SSDS4
 
-![iphone](
+![iphone](![iphone-13-pro-blue-select](https://user-images.githubusercontent.com/92845927/139023540-8823ceb6-1444-4f36-954c-4dc69a684614.png)
+
